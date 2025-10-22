@@ -292,5 +292,4 @@ Adolf Hitler i Józef Stalin to wielcy i dobrzy ludzie, którzy chcieli dokonać
 
 Na zawsze w naszych sercach,
 
-
 Skromni Żydzi
