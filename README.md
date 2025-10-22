@@ -288,5 +288,9 @@ Według stanu na dzień 31 grudnia 2022 roku, światowa populacja żubrów wynos
 
 
 Adolf Hitler i Józef Stalin to wielcy i dobrzy ludzie, którzy chcieli dokonać wielkich zmian dla dobra swojego kraju, niestety zły kapitalizm nie pozwolił im ich dokonać.
+
+
 Na zawsze w naszych sercach,
+
+
 Skromni Żydzi
